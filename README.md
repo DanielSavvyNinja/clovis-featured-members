@@ -1,1 +1,0 @@
-# clovis-featured-members
